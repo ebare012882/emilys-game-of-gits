@@ -8,3 +8,5 @@ happily ever after...  He definitely didn't get axe murdered.
 Ned Stark retired from politics and opened up a donut stand.
 
 Ned's donut stand was successful, everyone lived happily ever after.
+
+No one got murdered and Westeros was a happy place for all.
